@@ -1,0 +1,1 @@
+Kung Pao Chicken is a spicy, stir-fried Chinese dish made of chicken, peanuts, vegetables and chili peppers.
